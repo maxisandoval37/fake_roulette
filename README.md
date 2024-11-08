@@ -4,7 +4,7 @@
 
 ### [Click Here! 🖱️](https://maxisandoval37.github.io/fake_roulette/)
 
-https://github.com/user-attachments/assets/f9107bd5-4b16-4a54-ad9d-19ca60f9a6d3
+https://github.com/user-attachments/assets/89d693f2-afab-43e4-a49a-431ac51913cd
 
 ## Información Adicional
 Para cualquier información adicional o consultas: <maxisandoval98@gmail.com>
